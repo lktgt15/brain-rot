@@ -1,0 +1,2 @@
+# brain-rot
+brain rot
